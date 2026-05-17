@@ -1,10 +1,10 @@
-VIP PIA Aplicativo | suporte P2P + interruptor de desligamento é o melhor PIA aplicativo com suporte P2P e interruptor de desligamento. Seguro e otimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/private-internet-a-zw05/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
